@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Niraj
-- 👀 I’m interested in Coding, reading Books, Making projects.
+- 👀 I’m interested in Coding, Reading books, Making projects.
 - 📫 How to reach me: kumarniraj6205@gmail.com
 - 
 - 
